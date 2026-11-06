@@ -3,5 +3,5 @@
 Adhésion annuelle : 15 €
 Adhésion étudiante : 8 €
 Accès à l'atelier (adhérent) : gratuit
-Chambre à air neuve :9 €
+Chambre à air neuve :19 €
 reglages des freins : 5  €
